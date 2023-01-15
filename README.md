@@ -1,4 +1,4 @@
-### Olá forasteiro(a)! Eu sou o André! 🤠
+### Eu sou o André! 🤠
 
 - 👨‍🎓 Estudante de Análise e Desenvolvimento de Sistemas
 
